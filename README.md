@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Neema @NX1660
+- 👀 I’m an artist and a tech-enthusiast
+- 📫 How to reach me on twitter @nx1660
